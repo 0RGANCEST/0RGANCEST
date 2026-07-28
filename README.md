@@ -7,8 +7,11 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
-
+<p align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com&color=FF0000/?lines=Don't+Die+of+yet+i+still+love+you;Can't+You+See+it?" />
+  </a>
+</p>
 
 
 <img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
