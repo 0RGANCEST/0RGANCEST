@@ -133,7 +133,6 @@ Zoophiles/Pedophiles..
 
 Radqueer + whatever made up identity attracted to fict animals or kids U GUYS ARE GROSS AS FUCK.
 
-</details>
 
 intwec or dni at all if you are in any of these fandoms :Helluva boss,Hazbin hotel,TCOAL, vampire knight or yo support spawnism + cults etc (NO I DO NOT ASSOCIATE WITH SPAWNISM MY NMAE CMES FROM LET HIM GO 'BROKEN SPAWN' if u associate me with it i'll block you.)
 Shipping in general unless friends
@@ -143,3 +142,5 @@ Ex-friends + friend groups
 Double's of my nonsharing yumes (Yall are rare anyways lol)
 
 Ragebaiters, i don't find it funny
+
+</details>
