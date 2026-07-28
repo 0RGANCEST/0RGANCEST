@@ -80,3 +80,31 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 
 
 
+<details>
+  <summary>Info</summary>
+  
+  ### yaps
+
+
+
+
+
+  <details>
+  <summary>BYI</summary>
+  
+  ### yaps
+  
+
+
+<details>
+  <summary>Dni</summary>
+  
+  ### yaps
+
+
+  <details>
+  <summary>Fandoms + interests</summary>
+  
+  ### yaps
+  
+  
