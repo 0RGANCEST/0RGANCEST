@@ -44,7 +44,7 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 
 
 
-Check these for info!! [Atabook](https://organz.atabook.org/).  [rentry](https://yourwebsite.com). [strawpage](https://yourwebsite.com). [pronouns](https://pronouns.cc/@Dog_gonemad). 
+Check these for info!! [Atabook](https://organz.atabook.org/).  [rentry](https://rentry.co/orgnaz). [strawpage](https://yourwebsite.com). [pronouns](https://pronouns.cc/@Dog_gonemad). 
 
 Discord: painlesspoison
 
