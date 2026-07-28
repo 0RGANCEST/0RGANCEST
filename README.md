@@ -16,7 +16,7 @@ $${\color{#2AF598}N\color{#22E4AC}ow \space \color{#14C9CB} i \space \color{#0FB
 <p align="center">
 
 <p align="center">
-$${\color{#FA86F2}h\color{#F55CE7}e \space \color{#ED30CD} tells \space \color{#D7008A} me \space \color{#B30041} im \space \color{#B30041} pretty \space \color{#D7008A} don't \space \color{#ED30CD} know \space \color{#FA86F2} how \space to \space  respond}$$
+$${\color{#FA86F2}"h\color{#F55CE7}e \space \color{#ED30CD} tells \space \color{#D7008A} me \space \color{#B30041} im \space \color{#B30041} pretty \space \color{#D7008A} don't \space \color{#ED30CD} know \space \color{#FA86F2} how \space to \space  respond"}$$
 </p>
 
 <p align="center">
