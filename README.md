@@ -8,7 +8,7 @@
 
 
 <p align="center">
-$${\color{#1BD7BB}I've \space \color{lightblue} Rejected \space affection \space for \space years \space and \space years}$$
+$${\color{#1BD7BB}I've \space \color{#1BD7BB} Rejected \space affection \space for \space years \space and \space years}$$
 </p>
 <p align="center">
 $${\color{pink} Now \space i \space have \space it \space ,Damn \space it \space it's \space kinda \space weird}$$
