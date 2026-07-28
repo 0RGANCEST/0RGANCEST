@@ -5,6 +5,11 @@
 
 
 <img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
+<p align="center">
+$${\color{#FA86F2} "Stop \space \color{#F55CE7} there \space \color{#ED30CD} and \space \color{#D7008A} let \space \color{#B30041} me \space \color{#870009} Correct \space \color{#B30041} it \space \color{#D7008A} i \space \color{#D7008A} wanna \space \color{#ED30CD} live \space \color{#F55CE7} a \space \color{#FA86F2} live \space \color{#F55CE7} life \space \color{#ED30CD} from \space \color{#D7008A} a \space new \space \color{#FA86F2} perspective"}$$  
+</p>
+
+
 
 <p align="center">
 <img width="1034" height="392" alt="subkit" src="https://github.com/user-attachments/assets/66ed3ea7-49c2-443c-a97b-b5f63b2b0219" />
@@ -49,7 +54,6 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
-a
 <img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
 
 
