@@ -9,9 +9,10 @@
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.demolab.com&color=FF0000/?lines=Don't+Die+of+yet+i+still+love+you;Can't+You+See+it?" />
+    <img src="https://readme-typing-svg.herokuapp.com?font=libertinus+math&size=19&pause=1000&color=53BD86&background=0048FF00&width=435&lines=Don't+die+yet+i+was't+done+loving++you;Can't+you+see%3F..+Don't+die..i+beg+you" alt="Typing SVG" />
   </a>
 </p>
+
 
 
 <img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
