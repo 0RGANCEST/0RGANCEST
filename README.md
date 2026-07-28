@@ -49,8 +49,8 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 
 
 
-<p align="center">
-<img width="2048" height="1170" alt="medkit" src="https://github.com/user-attachments/assets/b06996f6-bef4-4b29-aba4-5f179287216e" />
+<p align="leftr">
+<img width="548" height="1170" alt="medkit" src="https://github.com/user-attachments/assets/b06996f6-bef4-4b29-aba4-5f179287216e" />
 </p>
 
 
