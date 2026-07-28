@@ -45,19 +45,14 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 
 
 
-  
-
-
-
-<p align="leftr">
-<img width="248" height="170" alt="medkit" src="https://github.com/user-attachments/assets/b06996f6-bef4-4b29-aba4-5f179287216e" />
-</p>       
-
 
 <img align="left" width="248" height="170" alt="medkit" src="https://github.com/user-attachments/assets/b06996f6-bef4-4b29-aba4-5f179287216e" />
+HI! You made it to my github congrats bud! 
 
-Lorem Ipsum is simply dummy text of the printing and typesetting
+I go by Spawn or coil yeah? I go by any pronouns but masc preffered
+You'll find me in the library, at docks or around the roblox area. 
 
+feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 
 
 
