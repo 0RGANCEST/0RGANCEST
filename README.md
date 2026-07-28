@@ -44,8 +44,6 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 
 
 
- [Atabook](https://organz.atabook.org/).  [rentry](https://rentry.co/orgnaz). [strawpage](https://organs-info.straw.page/). [pronouns](https://pronouns.cc/@Dog_gonemad). 
-
 <p align="center">
   <a href="https://organz.atabook.org/">Atabook</a> • 
   <a href="https://rentry.co/orgnaz">rentry</a> • 
