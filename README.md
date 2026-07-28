@@ -102,7 +102,7 @@ ALSO my memory is bad, if we don't interact for a while i firget who you are- mb
 <summary>BYI</summary>
   
 i am Introverted so yh..
-I don't get social cues so tone tags are appreciated though not required most times!
+*I don't get social cues so tone tags are appreciated though not required most times!
   
 I only flirt JOKINGLY with my close friends, so if we just met lets not-
 
