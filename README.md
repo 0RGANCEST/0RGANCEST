@@ -79,7 +79,7 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 <img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
 
 
-<img align="Right" width="877" height="1076" alt="subspace3" src="https://github.com/user-attachments/assets/33c2f2aa-5a4d-49c1-bbdc-abfc73fb8ed8" />
+<img align="Right" width="70" height="56" alt="subspace3" src="https://github.com/user-attachments/assets/33c2f2aa-5a4d-49c1-bbdc-abfc73fb8ed8" />
 <details>
 <summary>INFO</summary>
 
