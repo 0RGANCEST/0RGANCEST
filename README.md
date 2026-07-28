@@ -11,7 +11,7 @@
 $${\color{#2AF598}I'\color{#22E4AC}ve \space \color{#14C9CB} Rejected \space \color{#0FBED8} affection \space \color{#08B3E5} for \space \color{#0FBED8} years \space \color{#14C9CB} and \space \color{#22E4AC} years}$$
 </p>
 <p align="center">
-$${\color{pink} Now \space i \space have \space it \space ,Damn \space it \space it's \space kinda \space weird}$$
+$${\color{#2AF598}N\color{#22E4AC}ow \space \color{#14C9CB} i \space \color{#0FBED8} have \space \color{#08B3E5} ,Damn \space \color{#0FBED8} it \space \color{#14C9CB} it's \space \color{#22E4AC} kinda \space \color{#2AF598} weird}$$
 </p>
 <p align="center">
 $${\color{#FF4081} He \space tells \space Me \space i'm \space pretty \space Don't \space Know \space How \space to \space respond \space i \space tell \space him \space That \space He's \space pretty \space too \space can \space i \space say \space that? \space Don't \space have \space a \space clue}$$
