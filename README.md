@@ -4,6 +4,7 @@
 
 
 
+<img width="403" height="37" alt="TextStudio-Typewriter (3)" src="https://github.com/user-attachments/assets/89ff4d56-0670-4d93-bb33-53af4f369c7f" />
 
 
 
