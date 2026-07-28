@@ -67,8 +67,6 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 
 
 
-<img width="2048" height="687" alt=" divi 2" src="https://github.com/user-attachments/assets/710adeaf-e941-4006-83e4-598d452e2898" />
-
 
 
 <img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
