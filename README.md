@@ -3,6 +3,9 @@
 </p>
 
 
+
+<img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
+
 <p align="center">
 <img width="1034" height="392" alt="subkit" src="https://github.com/user-attachments/assets/66ed3ea7-49c2-443c-a97b-b5f63b2b0219" />
 
@@ -21,9 +24,6 @@ $${\color{#FA86F2}"h\color{#F55CE7}e \space \color{#ED30CD} tells \space \color{
 
 <p align="center">
 $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \space \color{#D7008A} that \space \color{#B30041} he's \space \color{#870009} pretty \space \color{#B30041} too \space \color{#D7008A} can \space \color{#D7008A} i \space \color{#ED30CD} say \space \color{#F55CE7} that? \space \color{#FA86F2} don't \space \color{#F55CE7} have \space \color{#ED30CD} a \space \color{#D7008A} clue"}$$  
-  
-  <img width="1000" height="100" alt="pink" src="https://github.com/user-attachments/assets/327644a8-0070-4b81-bdbb-de5a269202e8" />
-
 </p>
 
 
@@ -38,13 +38,19 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 </p>
 
 
+<img width="2048" height="687" alt=" divi 2" src="https://github.com/user-attachments/assets/710adeaf-e941-4006-83e4-598d452e2898" />
 
 
 
+<img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ypddj4cxdomrhjyvzl3meny2se&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=true&hide_remaster=false&mode=light&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
 
-
-
+<img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
 
 
 
