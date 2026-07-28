@@ -14,7 +14,7 @@ $${\color{pink}I've \space \color{lightblue} Rejected \space affection \space fo
 $${\color{pink} Now \space i \space have \space it \space ,Damn \space it \space it's \space kinda \space weird}$$
 </p>
 <p align="center">
-$${\color{#2AF598} He \space tells \space \colour{#22E4AC} Me \space i'm \space pretty \space Don't \space Know \space How \space to \space respond \space i \space tell \space him \space That \space He's \space pretty \space too \space can \space i \space say \space that? \space Don't \space have \space a \space clue}$$
+$${\color{#2AF598} He \space tells \space \colour{22E4AC} Me \space i'm \space pretty \space Don't \space Know \space How \space to \space respond \space i \space tell \space him \space That \space He's \space pretty \space too \space can \space i \space say \space that? \space Don't \space have \space a \space clue}$$
 </p>
 
 
