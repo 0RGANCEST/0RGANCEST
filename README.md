@@ -20,7 +20,7 @@ $${\color{#FA86F2}"h\color{#F55CE7}e \space \color{#ED30CD} tells \space \color{
 </p>
 
 <p align="center">
-$${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \space \color{#D7008A} that \space \color{#B30041} he's \space \color{#870009} pretty \space \color{#B30041} too \space \color{#D7008A} can \space \color{#D7008A} i \space \color{#ED30CD} say \space \color{#F55CE7} that? \space \color{#FA86F2} don't \space \color{#F55CE7} have \space \color{#ED30CD} a \space \color{#D7008A} clue"}$$<img width="50" height="100" alt="pink" src="https://github.com/user-attachments/assets/327644a8-0070-4b81-bdbb-de5a269202e8" />
+$${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \space \color{#D7008A} that \space \color{#B30041} he's \space \color{#870009} pretty \space \color{#B30041} too \space \color{#D7008A} can \space \color{#D7008A} i \space \color{#ED30CD} say \space \color{#F55CE7} that? \space \color{#FA86F2} don't \space \color{#F55CE7} have \space \color{#ED30CD} a \space \color{#D7008A} clue"}$$  <img width="50" height="100" alt="pink" src="https://github.com/user-attachments/assets/327644a8-0070-4b81-bdbb-de5a269202e8" />
 
 </p>
 
