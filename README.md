@@ -8,4 +8,4 @@
 
 
 <p align="center">
-$${\color{206245}I \space \color{lightblue}To \space \color{lightgreen}{github}}$$
+$${\color{pink}I \space \color{lightblue}To \space \color{lightgreen}{github}}$$
