@@ -9,7 +9,7 @@
 
 <p align="center">
   <a href="https://git.io/typing-svg">
-    <img src="https://readme-typing-svg.herokuapp.com?font=libertinus+math&size=19&pause=1000&color=53BD86&background=0048FF00&width=435&lines=Don't+die+yet+i+was't+done+loving++you;Can't+you+see%3F..+Don't+die..i+beg+you" alt="Typing SVG" />
+    <img src="https://readme-typing-svg.herokuapp.com?font=libertinus+math&size=19&pause=1000&color=71BDB5&background=0048FF00&width=435&lines=Don't+die+yet+i+was't+done+loving++you;Can't+you+see%3F..+Don't+die..i+beg+you" alt="Typing SVG" />
   </a>
 </p>
 
