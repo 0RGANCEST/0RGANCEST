@@ -84,22 +84,35 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 <summary>INFO</summary>
 
 I have multiple names so people call me different things, If were close call me lucard or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so be ware of the jokes related to race around me i don't take them well-
+
+
 I'm usually around my close friends or mutulas otherwise im doing stuff offtab i f i happen to be online.
 I'm an adult as of next year so i tend to avoid talking to minors. My major is forensic psychology and art atm
+
+
 I have diagnosed Autism,bipolar disorder and suspected schizoprenia + Bpd along side being a System and having major anxiety/depressive stages
 I tend to stay by myself just cuz i like peace don''t take it personally.
+
+
 ALSO my memory is bad, if we don't interact for a while i firget who you are- mb..
 
 </details>
 
 <details>
 <summary>BYI</summary>
+  
 i am Introverted so yh..
 I don't get social cues so tone tags are appreciated though not required most times!
+  
 I only flirt JOKINGLY with my close friends, so if we just met lets not-
+
+  
 i have some typing quirks and will change them based on charcter hyperfixation i.e i act like/type a character im fixated on for a while
+
+
 i'll act rude sometimes so i apologize in advance if i take my anger out on you
 My interests come across as violent in most media so if that makes you uncomfortable just dni or tell me so i don't mention it around you
+
 Just respect me and i resoect you yuh? gud gud!
 
 </details>
