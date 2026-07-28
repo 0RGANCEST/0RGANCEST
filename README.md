@@ -79,11 +79,17 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 <img width="1000" height="30" alt="blue didvi" src="https://github.com/user-attachments/assets/fba150c5-b958-4b6b-93da-46ed8ce2f7d4" />
 
 
-<summary>1</summary>
-hi
+<details>
+<summary>INFO</summary>
+
+### 🛠️ Step 1 Features
+* You can use bullet points here.
+* Or standard paragraphs.
+
+</details>
+
+<details>
+<summary>BYI</summary>
+Cookies
 
 
-
-
-<summary>2</summary>
-bye
