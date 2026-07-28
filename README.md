@@ -8,7 +8,7 @@
 
 
 <p align="center">
-$${\color{#2AF598}I'\color{#22E4AC}ve \space \color{#14C9CB} Rejected \space affection \space for \space years \space and \space years}$$
+$${\color{#2AF598}I'\color{#22E4AC}ve \space \color{#14C9CB} Rejected \space \color{#0FBED8} affection \space \color{#08B3E5} for \space \color{#0FBED8} years \space \color{#14C9CB} and \space \color{#22E4AC} years}$$
 </p>
 <p align="center">
 $${\color{pink} Now \space i \space have \space it \space ,Damn \space it \space it's \space kinda \space weird}$$
