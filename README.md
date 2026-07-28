@@ -43,6 +43,14 @@ $${\color{#FA86F2} "i \space \color{#F55CE7} tell \space \color{#ED30CD} him \sp
 </p>
 
 
+
+Check these for info!! [Atabook](https://organz.atabook.org/).  [rentry](https://yourwebsite.com). [strawpage](https://yourwebsite.com). [pronouns](https://pronouns.cc/@Dog_gonemad). 
+
+Discord: painlesspoison
+
+
+
+
 <img width="2048" height="687" alt=" divi 2" src="https://github.com/user-attachments/assets/710adeaf-e941-4006-83e4-598d452e2898" />
 
 
