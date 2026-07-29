@@ -108,7 +108,7 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 
 <img align="left" width="100" height="76" alt="subspace3" src="https://github.com/user-attachments/assets/33c2f2aa-5a4d-49c1-bbdc-abfc73fb8ed8" />
 <details>
-<summary>INFO</summary>
+<summary>INFO ༯ </summary>
 
 I have multiple names so people call me different things, If were close call me lucard or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so be ware of the jokes related to race around me i don't take them well-
 
@@ -126,7 +126,7 @@ ALSO my memory is bad, if we don't interact for a while i forget who you are- mb
 </details>
 
 <details>
-<summary>BYI</summary>
+<summary>BYI .⋆♱ </summary>
   
 i am Introverted so yh..
 
@@ -147,7 +147,7 @@ Just respect me and i resoect you yuh? gud gud!
 </details>
 
 <details>
-<summary>Dni</summary>
+<summary>Dni ꩜ .ᐟ</summary>
 Racists
 
 Homo/transphobes
