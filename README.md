@@ -126,7 +126,7 @@ ALSO my memory is bad, if we don't interact for a while i forget who you are- mb
 </details>
 
 <details>
-<summary>BYI .⋆♱ </summary>
+<summary>$${\color{#14C9CB} "BYI .⋆♱"}$$  </summary>
   
 i am Introverted so yh..
 
