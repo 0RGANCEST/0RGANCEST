@@ -175,8 +175,10 @@ Ragebaiters, i don't find it funny
 
 
 
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+Vi3wed bett3r on Pc!
 
 
 <p align="center">
-<img width="100" height="100" alt="medkitt" src="https://github.com/user-attachments/assets/be54b236-5a16-4a31-b198-194ecff48a69" /><img width="100" height="100" alt="subx" src="https://github.com/user-attachments/assets/39a989b8-a05d-470a-b4ba-7019bfcbd415" />
+<img width="300" height="200" alt="medkitt" src="https://github.com/user-attachments/assets/be54b236-5a16-4a31-b198-194ecff48a69" /><img width="300" height="200" alt="subx" src="https://github.com/user-attachments/assets/39a989b8-a05d-470a-b4ba-7019bfcbd415" />
 
