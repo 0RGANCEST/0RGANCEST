@@ -147,7 +147,7 @@ Just respect me and i resoect you yuh? gud gud!
 </details>
 
 <details>
-<summary>Dni ꩜ .ᐟ</summary>
+<summary>$${\color{#B30041} "Dni ꩜ ."}$$ᐟ</summary>
 Racists
 
 Homo/transphobes
