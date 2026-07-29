@@ -14,15 +14,18 @@
 
 
 <img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
-<p align="center">
-<img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" />
+
+<img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" />
 
 
 
 
 
 
-  
+
+
+
+<p align="center">  
 $${\color{#FA86F2} "Stop \space \color{#F55CE7} there \space \color{#ED30CD} and \space \color{#D7008A} let \space \color{#B30041} me \space \color{#870009} Correct \space \color{#B30041} it \space \color{#D7008A} i \space \color{#D7008A} wanna \space \color{#ED30CD} live \space \color{#F55CE7} a \space \color{#FA86F2} live \space \color{#F55CE7} life \space \color{#ED30CD} from \space \color{#D7008A} a \space new \space \color{#14C9CB} perspective"}$$  
 </p> <img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /> <img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" /><img align="right" width="64" height="64" alt="sub 9" src="https://github.com/user-attachments/assets/300194f7-a4bd-4383-8b13-294c242b5408" />
 
