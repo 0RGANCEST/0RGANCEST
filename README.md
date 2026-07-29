@@ -15,12 +15,6 @@
 
 <img width="1000" height="134" alt="p divi" src="https://github.com/user-attachments/assets/90e43029-26b0-4087-a37d-7a292871b6d2" />
 
-<img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" /><img align="right" width="76" height="72" alt="sub 8" src="https://github.com/user-attachments/assets/1d060b46-9956-42ab-9779-e40b824f8cad" />
-
-
-
-
-
 
 
 
