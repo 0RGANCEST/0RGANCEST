@@ -92,7 +92,7 @@ I have diagnosed Autism,bipolar disorder and suspected schizoprenia + Bpd along 
 I tend to stay by myself just cuz i like peace don''t take it personally.
 
 
-ALSO my memory is bad, if we don't interact for a while i firget who you are- mb..
+ALSO my memory is bad, if we don't interact for a while i forget who you are- mb..
 
 </details>
 
