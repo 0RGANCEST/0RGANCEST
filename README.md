@@ -47,7 +47,8 @@ $${\color{#FA86F2} "Stop \space \color{#F55CE7} there \space \color{#ED30CD} and
 
 
 <p align="center">
-<img width="1034" height="392" alt="subkit" src="https://github.com/user-attachments/assets/66ed3ea7-49c2-443c-a97b-b5f63b2b0219" />
+<img width="1034" height="392" alt="subkit" src="https://github.com/user-attachments/assets/66ed3ea7-49c2-443c-a97b-b5f63b2b0219" /><img align="right" width="62" height="62" alt="sub 8" src="https://github.com/user-attachments/assets/6d9ccffa-cb07-4c11-b210-78c08da27599" />
+
 
 
 <p align="center">
