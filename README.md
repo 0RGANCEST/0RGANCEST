@@ -108,7 +108,7 @@ feel free to interact unless on my 'DNI' or it states otherwise on my names^-^
 
 <img align="left" width="100" height="76" alt="subspace3" src="https://github.com/user-attachments/assets/33c2f2aa-5a4d-49c1-bbdc-abfc73fb8ed8" />
 <details>
-<summary>INFO ༯ </summary>
+<summary>$${\color{#FA86F2} "INFO ༯"}$$ </summary>
 
 I have multiple names so people call me different things, If were close call me lucard or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so be ware of the jokes related to race around me i don't take them well-
 
