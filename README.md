@@ -140,7 +140,7 @@ i have some typing quirks and will change them based on charcter hyperfixation i
 i'll act rude sometimes so i apologize in advance if i take my anger out on you
 My interests come across as violent in most media so if that makes you uncomfortable just dni or tell me so i don't mention it around you
 
-Just respect me and i resoect you yuh? gud gud!
+Just respect me and i respect you yuh? gud gud!
 
 </details>
 
@@ -152,14 +152,14 @@ Homo/transphobes
 
 Under 14's
 
-Pro/darkshippers or wtv u call yeah DNI
+Pro/darkshippers or wtv u call urselves, yeah DNI
 
 Zoophiles/Pedophiles..
 
 Radqueer + whatever made up identity attracted to fict animals or kids U GUYS ARE GROSS AS FUCK.
 
 
-intwec or dni at all if you are in any of these fandoms :Helluva boss,Hazbin hotel,TCOAL, vampire knight or yo support spawnism + cults etc (NO I DO NOT ASSOCIATE WITH SPAWNISM MY NMAE CMES FROM LET HIM GO 'BROKEN SPAWN' if u associate me with it i'll block you.)
+intwec or dni at all if you are in any of these fandoms :Helluva boss,Hazbin hotel,TCOAL, vampire knight or you support spawnism + cults etc (NO I DO NOT ASSOCIATE WITH SPAWNISM MY NMAE CMES FROM LET HIM GO 'BROKEN SPAWN' if u associate me with it i'll block you.)
 Shipping in general unless friends
 
 Ex-friends + friend groups
