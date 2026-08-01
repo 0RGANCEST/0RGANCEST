@@ -177,6 +177,9 @@ Ragebaiters, i don't find it funny
 
 Vi3wed bett3r on Pc!
 
+
+TYSM!! @pt-contributors ♦
+
 <p align="center">
 <img align="center" width="400" height="400" alt="medo" src="https://github.com/user-attachments/assets/145c0860-de47-497f-94a4-8b0e36684a35" />
 
