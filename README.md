@@ -10,7 +10,7 @@
 
 
 <details>
-<summary>$${\color{#FA86F2} "INFO ༯"}$$ </summary>
+<summary>$${\color{#a5a5a5} "INFO ༯"}$$ </summary>
 
 I have multiple names so people call me different things, If were close call me lucard or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so be ware of the jokes related to race around me i don't take them well-
 
@@ -28,7 +28,7 @@ ALSO my memory is bad, if we don't interact for a while i forget who you are- mb
 </details>
 
 <details>
-<summary>$${\color{#14C9CB} "BYI .⋆♱"}$$  </summary>
+<summary>$${\color{#5d5d5d} "BYI .⋆♱"}$$  </summary>
   
 i am Introverted so yh..
 
@@ -49,7 +49,7 @@ Just respect me and i respect you yuh? gud gud!
 </details>
 
 <details>
-<summary>$${\color{#B30041} "Dni ꩜ ."}$$ᐟ</summary>
+<summary>$${\color{#a5a5a5} "Dni ꩜ ."}$$ᐟ</summary>
 Racists
 
 Homo/transphobes
