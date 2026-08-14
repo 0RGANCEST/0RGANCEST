@@ -30,7 +30,7 @@ ALSO my memory is bad, if we don't interact for a while i forget who you are- mb
 </details>
 
 <details>
-<summary>$${\color{#5d5d5d} "BYI .⋆♱"}$$  </summary>
+<summary>$${\color{#A52A2A} "BYI .⋆♱"}$$  </summary>
   
 i am Introverted so yh..
 
