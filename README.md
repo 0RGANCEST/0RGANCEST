@@ -3,6 +3,7 @@
 </p>
 
 
+[![Pronouns](https://shields.io)](https://pronouns.cc/@Dog_gonemad)
 
 [Pronouns](https://pronouns.cc/@Dog_gonemad)
 
