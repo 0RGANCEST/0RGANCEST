@@ -4,12 +4,12 @@
 
 
 
-Rebranding as the devil itself
+[Pronouns](https://pronouns.cc/@Dog_gonemad)
+
 <p align="center">
 <img width="400" height="347" alt="dazai" src="https://github.com/user-attachments/assets/6e633bdc-ea7f-4775-b853-a90f31de6757" />
 </p>
 
-[Pronouns](https://pronouns.cc/@Dog_gonemad)
 
 
 
