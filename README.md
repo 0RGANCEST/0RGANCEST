@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=A52A2A&label=𝙲𝚛𝚞𝚌𝚒𝚏𝚒𝚎𝚍🥩🦴⋅&style=upper" alt="Vamps Counter" />
+  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=A52A2A&label=🥩Organs⋅&style=upper" alt="Vamps Counter" />
 </p>
 
 
