@@ -14,6 +14,9 @@
   <a href="https://organs-info.straw.page"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=STRAWPAGE" alt="Typing SVG" /></a>
 
 
+$$\color{#A9A9A9} \text{ ` Call me myrth, Lyric, Ronin strictly×}$$ 
+$$\color{#B0B0B0} \text{ `I suggest you read my pronouns page yeah? for my dni and all }$$
+$$\color{#696969 } \text{  "Join me in a double suicide, won't ya?" `}$$
 
 
 
