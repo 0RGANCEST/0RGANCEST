@@ -96,7 +96,10 @@ Ragebaiters, i don't find it funny
 
 </details>
 
-<a href="https://github.com/MAFIOSIFY"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=OG+organ" alt="Typing SVG" /></a>
+<a href="https://github.com/MAFIOSIFY"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=OG+organ" alt="Typing SVG" /></a> <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Aero!" alt="Typing SVG" /></a>  <a href="https://github.com/protectioncharm"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Bobcorn" alt="Typing SVG" /></a> 
+
+
+
 
 
 
