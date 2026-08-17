@@ -39,7 +39,7 @@ I have multiple names so people call me different things, If were close call me 
 
 
 I'm usually around my close friends or mutulas otherwise im doing stuff offtab i f i happen to be online.
-I'm an adult as of next year so i tend to avoid talking to minors. My major is forensic psychology and art atm
+I'm an adult as of next year so i tend to avoid talking to minors. My major is cybersecurity and art atm in college
 
 
 I have diagnosed Autism,bipolar disorder and suspected schizoprenia + Bpd along side being a System and having major anxiety/depressive stages
