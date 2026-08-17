@@ -1,11 +1,11 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=A52A2A&label=Crucified&style=upper" alt="Vamps Counter" />
+  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=FFFFF&label=Crucified&style=upper" alt="Vamps Counter" />
 </p>
 
 
 
 <p align="left">
-<img width="575" height="575" alt="45387908740747722" src="https://github.com/user-attachments/assets/54d33bb0-45f5-4fce-bb9d-e44164712263" />
+<img width="498" height="280" alt="Bsd Bungo Stray Dogs GIF - Bsd Bungo Stray Dogs Nikolai Gogol - Discover   Share GIFs" src="https://github.com/user-attachments/assets/246c6e52-4b83-4857-a19c-28d296783e74" />
 </p>
 
 
