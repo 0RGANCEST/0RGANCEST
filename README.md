@@ -11,7 +11,7 @@
 
 </tr>
   </table>
-  <a href="https://rekidepres.straw.page"><img src="https://readme-typing-svg.demolab.com?font=Cinzel+Decorative&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=STrawPAge" alt="Typing SVG" /></a>
+  <a href="https://rekidepres.straw.page"><img src="https://readme-typing-svg.demolab.com?font=bebas+neue&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=STrawPAge" alt="Typing SVG" /></a>
 
 
 
