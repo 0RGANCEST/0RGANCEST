@@ -2,14 +2,16 @@
   <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=C0C0C0&label=Crucified&style=upper" alt="Vamps Counter" />
 </p>
 
+
+<div align="center">
+
 </tr>
   </table>
   <a href="https://organz.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=orbitron&size=40&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
 
 
-<p align="right">
 <img width="498" height="280" alt="Bsd Bungo Stray Dogs GIF - Bsd Bungo Stray Dogs Nikolai Gogol - Discover   Share GIFs" src="https://github.com/user-attachments/assets/246c6e52-4b83-4857-a19c-28d296783e74" />
-</p>
+
 
 
 </tr>
