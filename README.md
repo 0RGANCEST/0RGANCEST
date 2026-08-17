@@ -4,7 +4,7 @@
 
 
 
-<p align="left">
+<p align="right">
 <img width="498" height="280" alt="Bsd Bungo Stray Dogs GIF - Bsd Bungo Stray Dogs Nikolai Gogol - Discover   Share GIFs" src="https://github.com/user-attachments/assets/246c6e52-4b83-4857-a19c-28d296783e74" />
 </p>
 
@@ -31,7 +31,7 @@ ALSO my memory is bad, if we don't interact for a while i forget who you are- mb
 </details>
 
 <details>
-<summary>$${\color{#A52A2A} "BYI .⋆♱"}$$  </summary>
+<summary>$${\color{#C0C0C0} "BYI .⋆♱"}$$  </summary>
   
 i am Introverted so yh..
 
