@@ -4,7 +4,7 @@
 
 </tr>
   </table>
-  <a href="https://organz.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=40&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
+  <a href="https://organz.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=orbitron&size=40&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Atabook" alt="Typing SVG" /></a>
 
 
 <p align="right">
