@@ -102,8 +102,9 @@ Ragebaiters, i don't find it funny
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦✦ . 　⁺ 　 . ✦ . 　
 
 
-</table>
-  <a href="https://github.com/MAFIOSIFY"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=OG organs" alt="Typing SVG" /></a>          </table>
+
+  <a href="https://github.com/MAFIOSIFY"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=OG organs" alt="Typing SVG" /></a>  
+  
   <a href="https://github.com/Lo0nyGoon"><img src="https://readme-typing-svg.demolab.com?font=EB+garamonds&size=20&duration=1000&pause=&color=C0C0C0&center=true&vCenter=true&repeat=false&width=260&height=55&lines=Kaworu!" alt="Typing SVG" /></a>
 
 
