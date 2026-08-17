@@ -1,12 +1,11 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=A52A2A&label=🥩Organs&style=upper" alt="Vamps Counter" />
+  <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=A52A2A&label=Crucified&style=upper" alt="Vamps Counter" />
 </p>
 
 
 
-<p align="center">
-<img width="640" height="360" alt="zai" src="https://github.com/user-attachments/assets/1cf91569-e5b9-4deb-953f-db5abcf98819" />
-
+<p align="left">
+<img width="575" height="575" alt="45387908740747722" src="https://github.com/user-attachments/assets/54d33bb0-45f5-4fce-bb9d-e44164712263" />
 </p>
 
 
