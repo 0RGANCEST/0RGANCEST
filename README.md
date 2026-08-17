@@ -5,7 +5,8 @@
 
 
 <p align="center">
-<img width="400" height="347" alt="dazai" src="https://github.com/user-attachments/assets/6e633bdc-ea7f-4775-b853-a90f31de6757" />
+<img width="640" height="360" alt="zai" src="https://github.com/user-attachments/assets/1cf91569-e5b9-4deb-953f-db5abcf98819" />
+
 </p>
 
 
