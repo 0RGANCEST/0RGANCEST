@@ -1,8 +1,6 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=0RGANCEST&color=C0C0C0&label=⏾&style=upper" alt="Vamps Counter" />
 </p>
-<img width="400" height="225" alt="niko" src="https://github.com/user-attachments/assets/892ccfc9-f3f5-432f-9866-a1858f32319e" />
-
 
 
 
@@ -20,7 +18,7 @@
 
 
 <p align="center">
-<img width="400" height="225" alt="niko" src="https://github.com/user-attachments/assets/1f011641-bf74-4a9d-9a2f-f19181815971" />
+<img width="1000" height="225" alt="niko" src="https://github.com/user-attachments/assets/1f011641-bf74-4a9d-9a2f-f19181815971" />
 
 
 
