@@ -18,7 +18,7 @@
 
 
 <p align="center">
-<img width="1000" height="500" alt="niko" src="https://github.com/user-attachments/assets/1f011641-bf74-4a9d-9a2f-f19181815971" />
+<img width="736" height="736" alt="✦" src="https://github.com/user-attachments/assets/bb963b06-10b7-4790-8b66-8c32bfa6837e" />
 
 
 
