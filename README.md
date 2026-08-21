@@ -8,6 +8,8 @@
 <p align="center">
   <a href="https://organz.atabook.org/">
     <img src="https://img.shields.io/badge/ATABOOK-A9A9A9?style=for-the-badge&logo=Atabook&logoColor=white">
+  </a>       <a href="https://pronouns.cc/@Dog_gonemad/">
+    <img src="https://img.shields.io/badge/PRONOUNS-A9A9A9?style=for-the-badge&logo=pronouns&logoColor=white">
   </a>
 
 
