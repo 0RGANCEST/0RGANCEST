@@ -72,25 +72,8 @@ Just respect me and i respect you yuh? gud gud!
 
 <details>
 <summary>$${\color{#a5a5a5} "Dni ꩜ ."}$$ᐟ</summary>
-Racists
-
-Homo/transphobes
-
-Under 14's
-
-Pro/darkshippers or wtv u call urselves, yeah DNI
-
-Zoophiles/Pedophiles..
-
-Radqueer + whatever made up identity attracted to fict animals or kids U GUYS ARE GROSS AS FUCK.
-
-intwec or dni at all if you are in any of these fandoms :Helluva boss,Hazbin hotel,TCOAL, vampire knight or you support spawnism + cults etc
-
-Shipping in general unless friends
-
-Ex-friends + friend groups
-
-Ragebaiters, i don't find it funny
+  
+basic DNI not strict tbh js use common sense. I block freely
 
 </details>
 
