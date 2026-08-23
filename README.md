@@ -34,7 +34,7 @@
 <details>
 <summary>$${\color{#a5a5a5} "INFO ༯"}$$ </summary>
 
-I have multiple names so people call me different things, If were close call me lucard or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so beware of the jokes related to race around me i don't take them well-
+I have multiple names so people call me different things, If were close call me Niko or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so beware of the jokes related to race around me i don't take them well-
 
 
 I'm usually around my close friends or mutulas otherwise im doing stuff offtab i f i happen to be online.
