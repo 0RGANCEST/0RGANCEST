@@ -32,20 +32,26 @@
 
 
 <details>
-<summary>$${\color{#a5a5a5} "INFO ༯"}$$ </summary>
+<summary>$${\color{#a5a5a5} "Random INFO༯"}$$ </summary>
+   MAIN fandoms:
+  Haikyuu
+  Wind Breaker
+  Tokyo Revengers
+  Demon slayer
+  BSD
+  Phighting
+  Jujuts kaisen
+  Honkai star rail
+  Genshin impact
+  Forsaken[not as active]
+  Death of die [specifically Wares]
+  Hellsing.
 
-I have multiple names so people call me different things, If were close call me Niko or pierce...or any name on my pronouns page lol. I'm Afrobritish(specifically scottish + Nigerian) so beware of the jokes related to race around me i don't take them well-
+  SYS most alters usually act like me so its hard to tell unless you ask. [they'll be less active on ponytown. currently working on a pronouns page for em' ]
 
 
-I'm usually around my close friends or mutulas otherwise im doing stuff offtab i f i happen to be online.
-I'm an adult as of next year so i tend to avoid talking to minors. My major is cybersecurity and art atm in college
-
-
-I have diagnosed Autism,bipolar disorder and suspected schizoprenia + Bpd along side being a System and having major anxiety/depressive stages
-I tend to stay by myself just cuz i like peace don''t take it personally.
-
-
-ALSO my memory is bad, if we don't interact for a while i forget who you are- mb..
+ALSO my memory is bad, if we don't interact for a while i forget who you are
+thats it? check my straw kk?? 
 
 </details>
 
@@ -57,13 +63,17 @@ i am Introverted so yh..
 
 *I don't get social cues so tone tags are appreciated though not required most times!
   
-I only flirt JOKINGLY with my close friends, so if we just met lets not-
+I only flirt JOKINGLY with my close friends(rarely, very rarely, and if ur a friend don't take these as romantic cues ok?), so if we just met lets not. don't label me as anything my gender is fluid af
+use they them to be safe ok?
 
   
 i have some typing quirks and will change them based on charcter hyperfixation i.e i act like/type a character im fixated on for a while
 
 
 i'll act rude sometimes so i apologize in advance if i take my anger out on you
+
+i am an avoidant person so if i ignore you while online don't take it personally
+
 My interests come across as violent in most media so if that makes you uncomfortable just dni or tell me so i don't mention it around you
 
 Just respect me and i respect you yuh? gud gud!
