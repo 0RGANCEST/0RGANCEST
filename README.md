@@ -88,7 +88,7 @@ thats it? check my straw kk??
 i am Introverted so yh..
 
 
-Multiname user, sai ar Lyric or Myrth are priamry online. feel free to acll me any of my names tho. Cmon be creative!
+Multiname user, sai ar Lyric or Myrth are priamry online. feel free to call me any of my names tho. Cmon be creative!
 use more than one, same goes for pronouns [they/it pref currently. he is ok ig]
 
 
