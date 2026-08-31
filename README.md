@@ -32,19 +32,41 @@
 
 
 <details>
-<summary>$${\color{#a5a5a5} "Random INFO༯"}$$ </summary>
+<summary>$${\color{#a5a5a5} "Random+INFO༯"}$$ </summary>
    MAIN fandoms:
   Haikyuu
+
+  
   Wind Breaker
+
+  
   Tokyo Revengers
+
+  
   Demon slayer
+
+  
   BSD
+
+  
   Phighting
+
+  
   Jujuts kaisen
+
+  
   Honkai star rail
+
+  
   Genshin impact
+
+  
   Forsaken[not as active]
+
+  
   Death of die [specifically Wares]
+
+  
   Hellsing.
 
   SYS most alters usually act like me so its hard to tell unless you ask. [they'll be less active on ponytown. currently working on a pronouns page for em' ]
