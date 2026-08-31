@@ -88,6 +88,10 @@ thats it? check my straw kk??
 i am Introverted so yh..
 
 
+Multiname user, sai ar Lyric or Myrth are priamry online. feel free to acll me any of my names tho. Cmon be creative!
+use more than one, same goes for pronouns [they/it pref currently. he is ok ig]
+
+
 *I don't get social cues so tone tags are appreciated though not required most times!
   
 I only flirt JOKINGLY with my close friends(rarely, very rarely, and if ur a friend don't take these as romantic cues ok?), so if we just met lets not. don't label me as anything my gender is fluid af
