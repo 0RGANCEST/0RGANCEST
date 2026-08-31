@@ -32,7 +32,7 @@
 
 
 <details>
-<summary>$${\color{#a5a5a5} "Random+INFO༯"}$$ </summary>
+<summary>$${\color{#a5a5a5} "Random INFO༯"}$$ </summary>
    MAIN fandoms:
   Haikyuu
 
