@@ -32,8 +32,14 @@
 
 
 <details>
-<summary>$${\color{#a5a5a5} "INFO༯"}$$ </summary>
-   MAIN fandoms:
+<summary>$${\color{#a5a5a5} "READ THIS B4 INT༯"}$$ </summary>
+
+
+Yall call me a copycat when yall have no proof one, 2 I'm not Shino. just because we had organs doesn't make me him. 3 no one has ever shown me proof I copied sm1(cuz I didn't you slow fks) if I settled the issue with you and you continue your bullshit I'll lowkey block you. if you're actually curious js talk to me bro not spreading dumbass rumors and jumping me only to get humbled cuz you're stupid(if you accuse me w/O proof) ty ty if u have beef with Shino talk to Shino not me. 
+
+
+
+MAINMAIN fandoms:
 
   
   Haikyuu
